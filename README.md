@@ -1,2 +1,2 @@
 # uwasco74
-Lord is the higest
+Lord is the highest
